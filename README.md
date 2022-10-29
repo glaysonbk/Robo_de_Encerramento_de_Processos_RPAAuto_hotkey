@@ -1,0 +1,1 @@
+# Rob-de-Encerrarmento-de-Processos-Improdutivos---AutoHotKey
